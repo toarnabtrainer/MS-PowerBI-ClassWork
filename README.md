@@ -5,7 +5,7 @@
 - ✅ **GitHub Link:** <https://github.com/toarnabtrainer/MS-PowerBI-ClassWork> or <https://tinyurl.com/yc7c7vjm>
 - ✅ **Online Session MS-Teams Link for all sessions:** <https://tinyurl.com/2s3yxjnr>
 * ✅ **G-Meet Link:** <https://meet.google.com/ugx-iskt-vbc>
-- ✅ **Notepad.pw Link:** <https://notepad.pw/p5Achs3EAtvkDLsbUxOg>
+- ✅ **Notepad.pw Link:** <https://notepad.pw/p5Achs3EAtvkDLsbUxOg> 
   
 <hr>
 
